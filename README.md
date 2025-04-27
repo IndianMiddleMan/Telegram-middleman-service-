@@ -2,6 +2,10 @@
 One and only telegram middle man service used by indian telegram users
 
 
-telegram username: @IDxYASH
+telegram channel: t.me/TarxMM
 
-note: don't waste time as i got daily 100's of escrows im the one and only GitHub mod to do escrow so 
+first mm: t.me/IDxYASH
+
+second mm: t.me/TarxHmu
+
+note: don't waste our time if yournt serious of it  👍 (adding me to your personal group and scamming with buyer/selller is strictly prohibited! 🚫
